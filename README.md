@@ -5,5 +5,6 @@ gokoshuu Diye Birisi Bizim Ekip Tagı Eklediğimiz Botu Kendi Eklemiş Gibi Gös
 
 #Meriaza yardımları için teşekkürler.
 
-![image](https://cdn.discordapp.com/attachments/887034843089748008/996331340939153508/Adsz.png)
+Bide Biz Etiket Tagı ekledik yazmışlar aynen kanka ;D
+![image](https://cdn.discordapp.com/attachments/887034843089748008/996334623145611305/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/887034843089748008/996332455181164604/unknown.png)

@@ -6,4 +6,4 @@
 #Meriaza yardımları için teşekkürler.
 
 ![image](https://cdn.discordapp.com/attachments/887034843089748008/996331340939153508/Adsz.png)
-![image](https://cdn.discordapp.com/attachments/887034843089748008/996331101473738772/unknown.png)
+![image](https://cdn.discordapp.com/attachments/887034843089748008/996332455181164604/unknown.png)

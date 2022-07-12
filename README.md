@@ -1,7 +1,9 @@
 # V13-Discord-Bot-Ekip
 
-#V13 Ekip Botu Sizlerle Paylaşıcam Tamamen .setup ve .kurulum İle Kuruluyor Hiç Bir Hatası Yok Ufak Bir Stardan Sonra Repoda Olacak
-gokoshuu Diye Birisi Bizim Ekip Tagı Eklediğimiz Botu Kendi Eklemiş Gibi Göstermiş Bir Bok Anladığı Yok Neyse Birazdan Ssler Buraya Gelir Botun Kendiside 10 20 stardan sonra atacam iyi günler.
+Selam CANZADENİN BOTUNA ETİKET TAGI EKLEMEYEN A-BOTCULAR soul ve goko attığı projeden star kasiomus yok 50 Star'da hoşgeldin mesajı eventler fln prim yok k4peklere hoşgeldin mesajı kontrol vesayre alın kullanin iyi günler... Meriaz kardesimin codeleri ile yapiolar bide ssler altta 
+10 20 starda burda bot
+
+# Meriaza yardımları için teşekkürler...
 
 #Meriaza yardımları için teşekkürler.
 
